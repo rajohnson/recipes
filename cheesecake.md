@@ -1,11 +1,11 @@
 # Cheesecake
 
 ### crust
-- 2 cups Oats
-- 2/3 cup Flour
-- 2/3 cup Brown sugar
-- 1 teaspoon salt
-- 2/3 cup butter - melted
+- 1.5 cups Oats
+- 1/2 cup Flour
+- 1/2 cup Brown sugar
+- 3/4 teaspoon salt
+- 1/2 cup butter - melted (maybe slightly less)
 ### filling
 - 32 oz (4 blocks) cream cheese
 - 1 cup granulated sugar
@@ -40,4 +40,3 @@ https://www.tastesoflizzyt.com/easy-oatmeal-pie-crust-recipe/ doubled
 https://sallysbakingaddiction.com/classic-cheesecake/#tasty-recipes-66517
 https://www.thekitchn.com/how-to-make-perfect-cheesecake-recipe-cooking-lessons-from-the-kitchen-110760#post-recipe-11561
 
-TODO - reduce crust to 1.5x times original batch size.
