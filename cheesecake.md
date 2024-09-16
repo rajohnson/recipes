@@ -4,8 +4,8 @@
 - 1.5 cups Oats
 - 1/2 cup Flour
 - 1/2 cup Brown sugar
-- 3/4 teaspoon salt
-- 1/2 cup butter - melted (maybe slightly less)
+- 1/4 teaspoon salt
+- 1/3 cup butter - melted
 ### filling
 - 32 oz (4 blocks) cream cheese
 - 1 cup granulated sugar
