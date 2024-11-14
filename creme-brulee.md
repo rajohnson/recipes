@@ -1,6 +1,5 @@
 # Creme Brulee
 
-### crust
 - 1 1/2 cup heavy cream
 - 1 1/2 cup whole milk
 - 1 vanilla bean
