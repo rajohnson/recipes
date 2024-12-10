@@ -30,7 +30,7 @@ While mixing add eggs and yolk one at a time.
 
 Wrap spring form pan in foil to exclude water.
 Pour filling over crust.
-Place in a dish in the over and fill with about an inch of boiling water.
+Place in a dish in the oven and fill with about an inch of boiling water.
 Bake for 60 min, until partly set.
 Turn off oven, crack slightly and leave for an hour.
 Place in refrigerator overnight.
