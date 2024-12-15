@@ -12,8 +12,8 @@
 - 1 tablespoon cornstarch
 - 1/8 teaspoon salt
 - 1/2 cup sour cream
-- 1 tablespoon vanilla
-- 2 teaspoons lemon juice
+- 1.5 tablespoon vanilla
+- 1 tablespoon lemon juice
 - 3 eggs
 - 1 egg yolk
 
