@@ -4,7 +4,7 @@
 - 12 ounces broccoli florets, about 2-3 cups
 - ½ cup soy sauce
 - 2 Tbs. water
-- 1 Tbs. taosted sesame oil
+- 1 Tbs. toasted sesame oil
 - 3 Tbs. Brown sugar
 - 1 tablespoon rice wine vinegar
 - 1 teaspoon freshly grated ginger
